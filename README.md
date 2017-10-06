@@ -10,5 +10,5 @@ telegram bot rat
 https://t.me/sajadirc
 tnx :)
 my channel:
-https:/t.me/sajadirc_team
+https://t.me/sajadirc_team
 We SEe You :)
